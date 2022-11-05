@@ -1,1 +1,4 @@
 Train hard!
+QWERTY
+QWERTY
+QWERTY
